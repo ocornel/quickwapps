@@ -1,2 +1,0 @@
-# quickwapps
-https://quickwapps.com
